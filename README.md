@@ -1,1 +1,0 @@
-# James Lynn Portfolio
